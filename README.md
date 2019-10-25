@@ -13,4 +13,9 @@ Azerite osu skins
 # [#azr8new but old](https://s.put.re/UpUkt74L.osk)
 ![](https://i.imgur.com/IzHCfPz.png)
 
+# [#azr8new](https://s.put.re/LQhAo5cu.osk)
+![](https://i.imgur.com/2lruFhR.png)
+
+
+
 
