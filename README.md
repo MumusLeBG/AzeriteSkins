@@ -28,6 +28,9 @@ Azerite(azr8(osu player84)) osu skins, some of them are slightly edited
 # [#azer8midnight - Purple](https://s.put.re/SGNj1FXN.osk)
 ![](https://i.imgur.com/0mznfU3.png)
 
+# [#azer8sunset (animated scorebar)](https://s.put.re/RK4vRMb1.osk)
+![](https://imgur.com/BhuEH78.png) 
+
 # [#azer8dusk (animated scorebar)](https://s.put.re/9mQy77cF.osk)
 ![](https://imgur.com/Y4IZ6hD.png)
 
