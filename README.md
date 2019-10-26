@@ -43,6 +43,9 @@ Azerite(azr8(osu player84)) osu skins, some of them are slightly edited
 # [#azer8dawn](https://s.put.re/8PSQ6s8Q.osk)
 ![](https://i.imgur.com/QrDbU6G.png)
 
+# [#Azerite - Mathyu edit](https://s.put.re/7nWd5ZD6.osk)
+![](https://i.imgur.com/sxmwqEY.png) 
+
 # [#Azerite v1.3](https://s.put.re/qRFjqokq.3.osk)
 ![](https://i.imgur.com/Vk9WSIy.png)
 
