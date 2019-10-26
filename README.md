@@ -46,6 +46,11 @@ Azerite(azr8(osu player84)) osu skins, some of them are slightly edited
 # [#azr8BernieSanders](https://s.put.re/sAS6VypT.osk)
 ![](https://i.imgur.com/sbUuXIJ.png)
 
+# [#Azerite (osu player84)](https://s.put.re/hWAnhcsh.osk)
+![](https://i.imgur.com/TZYghX2.png)
+
+
+
 
 
 
