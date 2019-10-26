@@ -1,5 +1,5 @@
 # AzeriteSkins
-Azerite osu skins
+Azerite(azr8(osu player84)) osu skins, some of them are slightly edited
 
 # [#azr8](https://s.put.re/Zj4C56zD.osk)
 ![](https://i.imgur.com/WuKcQqo.png)
