@@ -25,6 +25,15 @@ Azerite(azr8(osu player84)) osu skins, some of them are slightly edited
 # [#azer8midnight](https://s.put.re/i3ytqNMd.osk)
 ![](https://i.imgur.com/JA41sXB.png)
 
+# [#azer8midnight v1.1](https://s.put.re/tzm6AKmc.1.osk)
+![](https://osu.ppy.sh/ss/14035030/5abe)
+
+# [#azer8midnight v1.2](https://s.put.re/Vfabdbmi.2.osk)
+![](https://osu.ppy.sh/ss/14035057/18c0)
+
+# [#azer8midnight v1.3](https://s.put.re/QdUickx3.3.osk)
+![](https://osu.ppy.sh/ss/14035063/d008)
+
 # [#azer8midnight - Purple](https://s.put.re/SGNj1FXN.osk)
 ![](https://i.imgur.com/0mznfU3.png)
 
@@ -55,6 +64,12 @@ Azerite(azr8(osu player84)) osu skins, some of them are slightly edited
 # [#Azerite - Mathyu edit](https://s.put.re/7nWd5ZD6.osk)
 ![](https://i.imgur.com/sxmwqEY.png) 
 
+# [- ! # !azr8emilia.osk](https://s.put.re/1aDq6mU3.osk)
+![](https://osu.ppy.sh/ss/14035072/65a9) 
+
+# [- RyuK Azerite Megumin Modified -](https://s.put.re/P1eJf8Uf.osk)
+![](https://osu.ppy.sh/ss/14035146/f924)
+
 # [#Azerite v1.3](https://s.put.re/qRFjqokq.3.osk)
 ![](https://i.imgur.com/Vk9WSIy.png)
 
@@ -72,6 +87,7 @@ Azerite(azr8(osu player84)) osu skins, some of them are slightly edited
 
 # [#Azerite (osu player84)](https://s.put.re/hWAnhcsh.osk)
 ![](https://i.imgur.com/TZYghX2.png)
+
 
 
 
