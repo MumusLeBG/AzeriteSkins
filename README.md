@@ -23,9 +23,6 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 # [#azr8new - blue](https://s.put.re/yuT1ASfW.osk)
 ![](https://i.imgur.com/5xs6yxJ.png)
 
-# [[NSFW] Azr8 + RyuK AZURLANE UNICORN](https://s.put.re/3ukk3j1b.osk)
-![](https://osu.ppy.sh/ss/14036304/f3b4)
-
 # [-+Dumii+Shiina+Solo](https://s.put.re/qMEHZCmz.osk)
 ![](https://osu.ppy.sh/ss/14036286/7fbb)
 
