@@ -49,6 +49,9 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 # [#azer8dust](https://s.put.re/whLtBaxq.osk)
 ![](https://i.imgur.com/CQZwrAl.png) 
 
+# [- RyuK Azerite Megumin Modified -](https://s.put.re/P1eJf8Uf.osk)
+![](https://osu.ppy.sh/ss/14035146/f924)
+
 # [#azer8 twilight](https://s.put.re/HCvNFSXr.osk)
 ![](https://i.imgur.com/CXYN9mc.png)
 
@@ -69,9 +72,6 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 
 # [- ! # !azr8emilia.osk](https://s.put.re/1aDq6mU3.osk)
 ![](https://osu.ppy.sh/ss/14035072/65a9) 
-
-# [- RyuK Azerite Megumin Modified -](https://s.put.re/P1eJf8Uf.osk)
-![](https://osu.ppy.sh/ss/14035146/f924)
 
 # [#Azerite - Mathyu edit](https://s.put.re/7nWd5ZD6.osk)
 ![](https://i.imgur.com/sxmwqEY.png) 
