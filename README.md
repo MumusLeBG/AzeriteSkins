@@ -22,9 +22,6 @@ Azerite(azr8(osu player84)) osu skins, some of them are slightly edited
 # [#azer8midnight v1.5](https://s.put.re/MnAq3XJ1.5.osk)
 ![](https://i.imgur.com/0Lk18M7.png)
 
-# [#azer8midnight](https://s.put.re/i3ytqNMd.osk)
-![](https://i.imgur.com/JA41sXB.png)
-
 # [#azer8midnight v1.1](https://s.put.re/tzm6AKmc.1.osk)
 ![](https://osu.ppy.sh/ss/14035030/5abe)
 
@@ -33,6 +30,9 @@ Azerite(azr8(osu player84)) osu skins, some of them are slightly edited
 
 # [#azer8midnight v1.3](https://s.put.re/QdUickx3.3.osk)
 ![](https://osu.ppy.sh/ss/14035063/d008)
+
+# [#azer8midnight v1.4](https://s.put.re/i3ytqNMd.osk)
+![](https://i.imgur.com/JA41sXB.png)
 
 # [#azer8midnight - Purple](https://s.put.re/SGNj1FXN.osk)
 ![](https://i.imgur.com/0mznfU3.png)
