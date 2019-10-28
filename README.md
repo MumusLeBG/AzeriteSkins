@@ -62,8 +62,8 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 # [- RyuK Azerite Megumin Modified -](https://s.put.re/P1eJf8Uf.osk)
 ![](https://osu.ppy.sh/ss/14035146/f924)
 
-# [#azer8 twilight](https://s.put.re/HCvNFSXr.osk)
-![](https://i.imgur.com/CXYN9mc.png)
+# [azer8new - Pink](https://s.put.re/delete/dsfAJKjd.osk/CgF3Yzsa)
+![](https://i.imgur.com/aNI0jp3.png)
 
 # [azer8new (not #azr8new)](https://s.put.re/Rij11jny.osk)
 ![](https://osu.ppy.sh/ss/14036242/9db3)
