@@ -78,7 +78,7 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 ![](https://osu.ppy.sh/ss/14040304/1cee)
 
 # [#azer8dawn - Green and Yellow](https://s.put.re/yCbirFka.osk)
-![](https://osu.ppy.sh/ss/14040304/1cee)
+![](https://i.imgur.com/goFDZVS.png)
 
 # [#azer8dawn - Green and Orange](https://s.put.re/uFb5mS7U.osk)
 ![](https://i.imgur.com/V4jg2lY.png)
