@@ -74,8 +74,12 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 # [#azer8trail](https://s.put.re/WNotBZKu.osk)
 ![](https://i.imgur.com/LR1CbT6.png)
 
-# [#azer8dawn - Green and Yellow](https://s.put.re/MHck4pXL.osk)
-![](https://i.imgur.com/goFDZVS.png)
+# [azer8trail](https://s.put.re/WNotBZKu.osk)
+![](https://i.imgur.com/LR1CbT6.png)
+
+
+# [#azer8dawn - Green and Yellow](https://s.put.re/yCbirFka.osk)
+![](https://osu.ppy.sh/ss/14040304/1cee)
 
 # [#azer8dawn - Green and Orange](https://s.put.re/uFb5mS7U.osk)
 ![](https://i.imgur.com/V4jg2lY.png)
