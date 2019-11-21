@@ -33,6 +33,9 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 # [#azer8midnight v1.5](https://s.put.re/MnAq3XJ1.5.osk)
 ![](https://i.imgur.com/0Lk18M7.png)
 
+# [- # owoTuna {1.4} 『azr8』#](http://download1779.mediafire.com/u5ho3uozhvug/98zl79c7xnu7h00/-++++++%23+owoTuna+%7B1.4%7D+%E3%80%8Eazr8%E3%80%8F+%23++++++-.osk) 
+![](https://i.imgur.com/rBpFD92.png)
+
 # [#azer8midnight v1.4](https://s.put.re/3gaZecRD.4.osk)
 ![](https://i.imgur.com/JA41sXB.png)
 
