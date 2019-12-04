@@ -27,9 +27,6 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 # [#azr8new](https://s.put.re/LQhAo5cu.osk)
 ![](https://i.imgur.com/2lruFhR.png)
 
-# [-+Dumii+Shiina+Solo](https://s.put.re/qMEHZCmz.osk)
-![](https://osu.ppy.sh/ss/14036286/7fbb)
-
 # [#azer8midnight v1.5](https://s.put.re/MnAq3XJ1.5.osk)
 ![](https://i.imgur.com/0Lk18M7.png)
 
