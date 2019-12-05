@@ -63,7 +63,7 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 # [azer8new - Red and Blue](https://s.put.re/wWzP69jF.osk)
 ![](https://i.imgur.com/VebvALb.png)
 
-# [azer8new (not #azr8new)](https://s.put.re/Rij11jny.osk)
+# [azer8new](https://s.put.re/Rij11jny.osk)
 ![](https://osu.ppy.sh/ss/14036242/9db3)
 
 # [#azer8trail](https://s.put.re/WNotBZKu.osk)
