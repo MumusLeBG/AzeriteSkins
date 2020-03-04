@@ -3,6 +3,9 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 
 
 
+# [#azr8dsgfnjdsf 2](https://azer1.s-ul.eu/ckGOMum0)
+![](https://i.imgur.com/DYdCk9L.png)
+
 # [#azr8dsgfnjdsf](https://azer1.s-ul.eu/xmXLUOeq)
 ![](https://i.imgur.com/HG3A8rD.png)
 
