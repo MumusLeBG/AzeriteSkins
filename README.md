@@ -3,10 +3,10 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 
 
 
-# [#azr8dsgfnjdsf 2](https://download1646.mediafire.com/fmnc1ycsfivg/aa8o92thqfi4r5w/azr8dsgfnjdsf+2.osk)
+# [azr8dsgfnjdsf 2](https://download1646.mediafire.com/fmnc1ycsfivg/aa8o92thqfi4r5w/azr8dsgfnjdsf+2.osk)
 ![](https://i.imgur.com/DYdCk9L.png)
 
-# [#azr8dsgfnjdsf](https://azer1.s-ul.eu/xmXLUOeq)
+# [azr8dsgfnjdsf](https://azer1.s-ul.eu/xmXLUOeq)
 ![](https://i.imgur.com/HG3A8rD.png)
 
 # [#azr8technocandy](https://download1476.mediafire.com/0swry33e20ag/77mnor4ro3f0d89/%23azr8technocandy.osk)
