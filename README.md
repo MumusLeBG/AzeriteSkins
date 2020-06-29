@@ -1,5 +1,6 @@
 # AzeriteSkins
 Azerite(azr8(osu player84)) osu skins, some of them are edited
+If you have any skin or if any link is dead, PM on discord : M u m u s#6054
 
 
 
