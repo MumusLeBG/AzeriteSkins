@@ -6,7 +6,7 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 # [azr8dsgfnjdsf 2](https://mumus.s-ul.eu/F4xQHdro)
 ![](https://i.imgur.com/DYdCk9L.png)
 
-# [azr8dsgfnjdsf](https://azer1.s-ul.eu/xmXLUOeq)
+# [azr8dsgfnjdsf](https://cdn.discordapp.com/attachments/711231674758987876/711232570242629632/azr8dsgfnjdsf.osk)
 ![](https://i.imgur.com/HG3A8rD.png)
 
 # [#azr8technocandy](https://download1476.mediafire.com/0swry33e20ag/77mnor4ro3f0d89/%23azr8technocandy.osk)
