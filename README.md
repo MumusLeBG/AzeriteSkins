@@ -115,6 +115,9 @@ If you have any skin or if any link is dead, PM on discord : M u m u s#6054
 # [#Azerite v1](https://s.put.re/q7sm9Cby.osk)
 ![](https://i.imgur.com/UmEIkKz.png)
 
+# [#azr8 - ar11hehe](https://mumus.s-ul.eu/AcKfsULq)
+![](https://imgur.com/bbpV1ST.png)
+
 # [#azr8BernieSanders](https://s.put.re/sAS6VypT.osk)
 ![](https://i.imgur.com/sbUuXIJ.png)
 
