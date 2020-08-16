@@ -4,7 +4,7 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 If you have any skin or if any link is dead, PM on discord : M u m u s#6054
 
 
-# [Nara 5.3](https://download853.mediafire.com/oqo1tlhven4g/sm97s7sidmsuja2/Nara%2B5.3.zip)
+# [Nara 5.3](http://www.mediafire.com/file/sm97s7sidmsuja2/Nara%252B5.3.zip/file)
 ![](https://i.imgur.com/flm9AtK.png)
 
 # [azr8dsgfnjdsf 4](https://mumus.s-ul.eu/GXWVM2pH)
