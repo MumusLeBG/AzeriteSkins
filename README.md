@@ -22,8 +22,8 @@ If you have any skin or if any link is dead, PM on discord : M u m u s#6054
 # [azr8dsgfnjdsf](https://cdn.discordapp.com/attachments/711231674758987876/711232570242629632/azr8dsgfnjdsf.osk)
 ![](https://i.imgur.com/HG3A8rD.png)
 
-# [#azr8technocandy](https://download1476.mediafire.com/0swry33e20ag/77mnor4ro3f0d89/%23azr8technocandy.osk)
-![](https://i.imgur.com/ZgWBy4d.png)  
+# [#azr8technocandy](https://mumus.s-ul.eu/rGIwkmwK)
+![](https://imgur.com/WDR5QlF.png)  
 
 # [#azr8ima](https://mumus.s-ul.eu/xipVUzMb)
 ![](https://imgur.com/mjPug8f.png)
