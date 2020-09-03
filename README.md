@@ -1,7 +1,7 @@
 # AzeriteSkins
 Azerite(azr8(osu player84)) osu skins, some of them are edited
 
-If you have any skin or if any link is dead, PM on discord : M u m u s#6054
+If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 
 
 nomod: https://azer1.s-ul.eu/zIq5uepB dt: https://azer1.s-ul.eu/TDa5smQZ (I'm gonna arrange these 2 skins later)
