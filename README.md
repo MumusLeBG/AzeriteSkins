@@ -89,8 +89,8 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [azer8new - Pink](https://s.put.re/MoKQb33D.osk)
 ![](https://i.imgur.com/aNI0jp3.png)
 
-# [azer8new - Red and Blue](https://s.put.re/wWzP69jF.osk)
-![](https://i.imgur.com/VebvALb.png)
+# [azer8new - Red and Blue](https://mumus.s-ul.eu/D1wR2psP)
+![](https://imgur.com/OepN87y.png)
 
 # [azer8new](https://s.put.re/Rij11jny.osk)
 ![](https://osu.ppy.sh/ss/14036242/9db3)
