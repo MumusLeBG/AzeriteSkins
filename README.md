@@ -95,6 +95,9 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [azer8new](https://s.put.re/Rij11jny.osk)
 ![](https://osu.ppy.sh/ss/14036242/9db3)
 
+# [azer8sthetic](https://mumus.s-ul.eu/GHHXwA0i)
+![](https://imgur.com/whIsb6A.png)
+
 # [#azer8trail](https://s.put.re/WNotBZKu.osk)
 ![](https://i.imgur.com/LR1CbT6.png)
 
