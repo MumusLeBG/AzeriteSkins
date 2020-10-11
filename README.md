@@ -131,6 +131,9 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#Azerite - Mathyu edit](https://s.put.re/7nWd5ZD6.osk)
 ![](https://i.imgur.com/sxmwqEY.png) 
 
+# [azer8hitsounds](https://mumus.s-ul.eu/NJMgjSE6)
+![](https://imgur.com/k28oDQu.png) 
+
 # [#Azerite v1.3](https://s.put.re/qRFjqokq.3.osk)
 ![](https://i.imgur.com/Vk9WSIy.png)
 
