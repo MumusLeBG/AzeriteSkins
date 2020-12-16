@@ -5,6 +5,9 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 
 
 
+# [azr8bubbleman - white](https://mumus.s-ul.eu/015sBP8Z)
+![](https://imgur.com/3aqfb9c.png)
+
 # [azr8bubbleman](https://mumus.s-ul.eu/f6iMrpbK)
 ![](https://imgur.com/fpqEScu.png)
 
