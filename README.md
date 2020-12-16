@@ -68,9 +68,6 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azer8midnight v1.4](https://s.put.re/3gaZecRD.4.osk)
 ![](https://i.imgur.com/JA41sXB.png)
 
-# [#azer8midnight - Purple](https://s.put.re/SGNj1FXN.osk)
-![](https://i.imgur.com/0mznfU3.png)
-
 # [#azer8midnight v1](https://s.put.re/ohWvSW9h.osk)
 ![](https://i.imgur.com/TqZyRTk.png)
 
