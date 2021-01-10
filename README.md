@@ -113,7 +113,7 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azer8dawn - Bright Green](https://mumus.s-ul.eu/bHYAl1Ox)
 ![](https://imgur.com/yUTkrbA.png)
 
-# [#azer8dawn - Green and Yellow](https://s.put.re/yCbirFka.osk)
+# [#azer8dawn - Green and Yellow](https://www.mediafire.com/file/rbcpmqbvrm4nv8r/%2523azer8dawn_-_Green_and_Yellow.osk/file)
 ![](https://i.imgur.com/goFDZVS.png)
 
 # [#azer8dawn - Green and Orange](https://s.put.re/uFb5mS7U.osk)
