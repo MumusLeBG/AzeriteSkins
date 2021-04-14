@@ -82,7 +82,7 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azer8dust](https://s.put.re/whLtBaxq.osk)
 ![](https://i.imgur.com/CQZwrAl.png)
 
-# [- RyuK Azerite Megumin Modified -](https://s.put.re/P1eJf8Uf.osk)
+# [- MeguminAzerite -](https://s.put.re/P1eJf8Uf.osk)
 ![](https://osu.ppy.sh/ss/14035146/f924)
 
 # [azer8new - Pink](https://s.put.re/MoKQb33D.osk)
