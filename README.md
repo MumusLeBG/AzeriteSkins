@@ -52,7 +52,7 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azer8idke 2](https://s.put.re/HHrZqBR2.osk)
 ![](https://i.imgur.com/OgZdp6P.png)
 
-# [#azr8new but old](https://s.put.re/UpUkt74L.osk)
+# [#azr8new but old (missing)](https://s.put.re/UpUkt74L.osk)
 ![](https://i.imgur.com/IzHCfPz.png)
 
 # [#azr8new - blue](https://s.put.re/yuT1ASfW.osk)
