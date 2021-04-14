@@ -3,6 +3,8 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 
 If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 
+14/04/2021 : it seems that some links are dead, I'm currently moving all the skins files onto Mediafire, it could take a few days
+
 
 
 # [azr8bubbleman - white](https://mumus.s-ul.eu/015sBP8Z)
