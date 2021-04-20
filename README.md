@@ -118,10 +118,10 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azer8dawn - Green and Yellow](https://www.mediafire.com/file/rbcpmqbvrm4nv8r/%2523azer8dawn_-_Green_and_Yellow.osk/file)
 ![](https://i.imgur.com/goFDZVS.png)
 
-# [#azer8dawn - Green and Orange](https://s.put.re/uFb5mS7U.osk)
+# [#azer8dawn - Green and Orange (missing)](https://s.put.re/uFb5mS7U.osk)
 ![](https://i.imgur.com/V4jg2lY.png)
 
-# [#azer8dawn - Orange and Purple](https://s.put.re/2fd7XLYk.osk)
+# [#azer8dawn - Orange and Purple (missing)](https://s.put.re/2fd7XLYk.osk)
 ![](https://i.imgur.com/p5Job3x.png)
 
 # [#azer8dawn](https://s.put.re/8PSQ6s8Q.osk)
