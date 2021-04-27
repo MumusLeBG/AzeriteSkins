@@ -37,19 +37,19 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azr8technocandy](https://www.mediafire.com/file/2vcp95q7zbjkw0r/%2523azr8technocandy.osk/file)
 ![](https://imgur.com/WDR5QlF.png)  
 
-# [#azr8ima](https://mumus.s-ul.eu/xipVUzMb)
+# [#azr8ima](https://www.mediafire.com/file/lec1ibwsbzoc7pt/%2523azr8ima.osk/file)
 ![](https://imgur.com/mjPug8f.png)
 
-# [#azr8test](https://s.put.re/4gARqkN5.osk)
+# [#azr8test](https://www.mediafire.com/file/ko368mx17nj6m50/%2523azr8test.osk/file)
 ![](https://osu.ppy.sh/ss/14036339/0f75)
 
-# [#azr8](https://s.put.re/Zj4C56zD.osk)
+# [#azr8](https://www.mediafire.com/file/infr9fbh5pjt353/%2523azr8.osk/file)
 ![](https://i.imgur.com/WuKcQqo.png)
 
-# [#azer8idke](https://s.put.re/5wN53ShZ.osk)
+# [#azer8idke](https://www.mediafire.com/file/avk1qv2hgpmy70f/%2523azer8idke.osk/file)
 ![](https://i.imgur.com/41wGAdD.png)
 
-# [#azer8idke 2](https://s.put.re/HHrZqBR2.osk)
+# [#azer8idke 2](https://www.mediafire.com/file/ckz5qic1n6rsq4q/%2523azer8idke_2.osk/file)
 ![](https://i.imgur.com/OgZdp6P.png)
 
 # [#azr8new but old (missing)](https://s.put.re/UpUkt74L.osk)
