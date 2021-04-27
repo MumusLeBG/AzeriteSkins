@@ -19,22 +19,22 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [azr8azerino](https://www.mediafire.com/file/mpiz6vvaulhnjja/azr8azerino.osk/file)
 ![](https://imgur.com/Nr54fvU.png)
 
-# [Nara 5.3](https://mumus.s-ul.eu/iENhaNUu)
+# [Nara 5.3](https://www.mediafire.com/file/84rf5h0am7wimm1/Nara_5.3.osk/file)
 ![](https://i.imgur.com/flm9AtK.png)
 
-# [azr8dsgfnjdsf 4](https://mumus.s-ul.eu/GXWVM2pH)
+# [azr8dsgfnjdsf 4](https://www.mediafire.com/file/2tw3o3679jcugyr/azr8dsgfnjdsf_4.osk/file)
 ![](https://imgur.com/e3q704n.png)
 
-# [azr8dsgfnjdsf 3](https://mumus.s-ul.eu/2FFtszYS)
+# [azr8dsgfnjdsf 3](https://www.mediafire.com/file/e911hmojfemn8uy/azr8dsgfnjdsf_3.osk/file)
 ![](https://imgur.com/qOUBVOD.png)
 
-# [azr8dsgfnjdsf 2](https://mumus.s-ul.eu/F4xQHdro)
+# [azr8dsgfnjdsf 2](https://www.mediafire.com/file/o4jco1y2rkosfxt/azr8dsgfnjdsf_2.osk/file)
 ![](https://i.imgur.com/DYdCk9L.png)
 
-# [azr8dsgfnjdsf](https://cdn.discordapp.com/attachments/711231674758987876/711232570242629632/azr8dsgfnjdsf.osk)
+# [azr8dsgfnjdsf](https://www.mediafire.com/file/ftw08s4s4mp6vol/azr8dsgfnjdsf.osk/file)
 ![](https://i.imgur.com/HG3A8rD.png)
 
-# [#azr8technocandy](https://mumus.s-ul.eu/rGIwkmwK)
+# [#azr8technocandy](https://www.mediafire.com/file/2vcp95q7zbjkw0r/%2523azr8technocandy.osk/file)
 ![](https://imgur.com/WDR5QlF.png)  
 
 # [#azr8ima](https://mumus.s-ul.eu/xipVUzMb)
