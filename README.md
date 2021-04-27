@@ -7,16 +7,16 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 
 
 
-# [azr8bubbleman - white](https://mumus.s-ul.eu/015sBP8Z)
+# [azr8bubbleman - white](https://www.mediafire.com/file/vuk4uktrsfwllom/azr8bubbleman_-_white.osk/file)
 ![](https://imgur.com/3aqfb9c.png)
 
-# [azr8bubbleman](https://mumus.s-ul.eu/f6iMrpbK)
+# [azr8bubbleman](https://www.mediafire.com/file/kzjkib8jry3vdpz/azr8bubbleman.osk/file)
 ![](https://imgur.com/fpqEScu.png)
 
-# [azr8rafis](https://mumus.s-ul.eu/VPw3W5D0)
+# [azr8rafis](https://www.mediafire.com/file/7orx45er30q4g2n/azr8rafis.osk/file)
 ![](https://imgur.com/MmwBpqy.png)
 
-# [azr8azerino](https://mumus.s-ul.eu/HCT6k0c7)
+# [azr8azerino](https://www.mediafire.com/file/mpiz6vvaulhnjja/azr8azerino.osk/file)
 ![](https://imgur.com/Nr54fvU.png)
 
 # [Nara 5.3](https://mumus.s-ul.eu/iENhaNUu)
