@@ -79,52 +79,52 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azer8dusk (animated scorebar) (missing)](https://s.put.re/9mQy77cF.osk)
 ![](https://imgur.com/Y4IZ6hD.png)
 
-# [#azer8dust](https://s.put.re/whLtBaxq.osk)
+# [#azer8dust](https://www.mediafire.com/file/2pnb9rhpbz26cqy/%2523azer8dust.osk/file)
 ![](https://i.imgur.com/CQZwrAl.png)
 
-# [- MeguminAzerite -](https://s.put.re/P1eJf8Uf.osk)
+# [- MeguminAzerite -](https://www.mediafire.com/file/z68sszda7o8gq4x/-_MeguminAzerite__-.osk/file)
 ![](https://osu.ppy.sh/ss/14035146/f924)
 
 # [azer8new - Pink (missing)](https://s.put.re/MoKQb33D.osk)
 ![](https://i.imgur.com/aNI0jp3.png)
 
-# [azer8new - Red and Blue](https://mumus.s-ul.eu/D1wR2psP)
+# [azer8new - Red and Blue](https://www.mediafire.com/file/lvnq4fhqpiwdbht/azer8new_-_Red_and_Blue.osk/file)
 ![](https://imgur.com/OepN87y.png)
 
-# [azer8new](https://s.put.re/Rij11jny.osk)
+# [azer8new](https://www.mediafire.com/file/6af89gls3sd4z7e/azer8new.osk/file)
 ![](https://osu.ppy.sh/ss/14036242/9db3)
 
-# [azer8sthetic](https://mumus.s-ul.eu/GHHXwA0i)
+# [azer8sthetic](https://www.mediafire.com/file/bzrogb4itqo21wx/azer8sthetic.osk/file)
 ![](https://imgur.com/whIsb6A.png)
 
-# [azer8red](https://mumus.s-ul.eu/HYrl9wTQ)
+# [azer8red](https://www.mediafire.com/file/a9vtmuv9gygkaop/azer8red.osk/file)
 ![](https://imgur.com/0EGytt5.png)
 
-# [azer8nomod](https://mumus.s-ul.eu/zaQ5EICd)
+# [azer8nomod](https://www.mediafire.com/file/5m4wkdppom8ekc2/azer8nomod.osk/file)
 ![](https://imgur.com/iA0X4hH.png)
 
-# [#azer8trail](https://s.put.re/WNotBZKu.osk)
+# [#azer8trail](https://www.mediafire.com/file/vjd49kiy50px4wd/%2523azer8trail.osk/file)
 ![](https://i.imgur.com/LR1CbT6.png)
 
 # [azer8trail (missing)](https://s.put.re/yCbirFka.osk)
 ![](https://osu.ppy.sh/ss/14040304/1cee)
 
-# [azer8bubble](https://s.put.re/QiY4BJeC.osk)
+# [azer8bubble](https://www.mediafire.com/file/xrife19lj1dksht/azer8bubble.osk/file)
 ![](https://imgur.com/qIBpAUb.png)
 
-# [#azer8dawn - Bright Green](https://mumus.s-ul.eu/bHYAl1Ox)
+# [#azer8dawn - Bright Green](https://www.mediafire.com/file/1nptb60nfxar7wq/%2523azer8dawn_-_Bright_Green.osk/file)
 ![](https://imgur.com/yUTkrbA.png)
 
-# [#azer8dawn - Green and Yellow](https://www.mediafire.com/file/rbcpmqbvrm4nv8r/%2523azer8dawn_-_Green_and_Yellow.osk/file)
+# [#azer8dawn - Green and Yellow](https://www.mediafire.com/file/xs8w0pftzw63zjo/%2523azer8dawn_-_Green_and_Yellow.osk/file)
 ![](https://i.imgur.com/goFDZVS.png)
 
-# [#azer8dawn - Green and Orange](https://s.put.re/uFb5mS7U.osk)
+# [#azer8dawn - Green and Orange](https://www.mediafire.com/file/f372in2ukt6pj8a/%2523azer8dawn_-_Green_and_Orange.osk/file)
 ![](https://i.imgur.com/V4jg2lY.png)
 
-# [#azer8dawn - Orange and Purple](https://s.put.re/2fd7XLYk.osk)
+# [#azer8dawn - Orange and Purple](https://www.mediafire.com/file/n0ns91nnne5qfd5/%2523azer8dawn_-_Orange_and_Purple.osk/file)
 ![](https://i.imgur.com/p5Job3x.png)
 
-# [#azer8dawn](https://s.put.re/8PSQ6s8Q.osk)
+# [#azer8dawn](https://www.mediafire.com/file/3j1vo40laywhaoi/%2523azer8dawn.osk/file)
 ![](https://i.imgur.com/QrDbU6G.png)
 
 # [#Azerite - Mathyu edit](https://s.put.re/7nWd5ZD6.osk)
