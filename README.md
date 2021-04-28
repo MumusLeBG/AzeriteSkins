@@ -127,11 +127,11 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azer8dawn](https://www.mediafire.com/file/3j1vo40laywhaoi/%2523azer8dawn.osk/file)
 ![](https://i.imgur.com/QrDbU6G.png)
 
-# [#Azerite - Mathyu edit](https://s.put.re/7nWd5ZD6.osk)
+# [#Azerite - Mathyu edit](https://www.mediafire.com/file/0jc3jykab0e499d/%2523Azerite_-_Mathyu_edit.osk/file)
 ![](https://i.imgur.com/sxmwqEY.png) 
 
-# [azer8kamui](https://mumus.s-ul.eu/oKvlSvoA)
-![](https://imgur.com/QVbz4gb.png) 
+# [azer8kamui](https://www.mediafire.com/file/xoffau4dvhhwhmx/azer8kamui.osk/file)
+![](https://imgur.com/G6sa7E1.png) 
 
 # [azer8cookiezi](https://mumus.s-ul.eu/WWkktgSi)
 ![](https://imgur.com/Md2hcVl.png) 
