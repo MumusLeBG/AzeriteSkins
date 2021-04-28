@@ -133,31 +133,31 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [azer8kamui](https://www.mediafire.com/file/xoffau4dvhhwhmx/azer8kamui.osk/file)
 ![](https://imgur.com/G6sa7E1.png) 
 
-# [azer8cookiezi](https://mumus.s-ul.eu/WWkktgSi)
+# [azer8cookiezi](https://www.mediafire.com/file/w7gr1dkfq3fnxex/azer8cookiezi.osk/file)
 ![](https://imgur.com/Md2hcVl.png) 
 
-# [azer8hitsounds](https://mumus.s-ul.eu/NJMgjSE6)
+# [azer8hitsounds](https://www.mediafire.com/file/av1drex7y8hhfhs/azer8hitsounds.osk/file)
 ![](https://imgur.com/k28oDQu.png) 
 
 # [#Azerite v1.3 (missing)](https://s.put.re/qRFjqokq.3.osk)
 ![](https://i.imgur.com/Vk9WSIy.png)
 
-# [#Azerite v1.2](https://s.put.re/hRVbzD5k.osk)
+# [#Azerite v1.2](https://www.mediafire.com/file/tqc13mfa7pbkj93/%2523Azerite_v1.2.osk/file)
 ![](https://i.imgur.com/ofIuHXw.png)
 
-# [#Azerite v1.1](https://s.put.re/dsZoi1ND.1.osk)
+# [#Azerite v1.1](https://www.mediafire.com/file/p5ju3waaxvvz3qy/%2523Azerite_v1.1.osk/file)
 ![](https://i.imgur.com/K2OkNHN.png)
 
-# [#Azerite v1](https://s.put.re/q7sm9Cby.osk)
+# [#Azerite v1](https://www.mediafire.com/file/pwmllokg2up8yt6/%2523Azerite_v1.osk/file)
 ![](https://i.imgur.com/UmEIkKz.png)
 
-# [#azr8 - ar11hehe](https://mumus.s-ul.eu/AcKfsULq)
+# [#azr8 - ar11hehe](https://www.mediafire.com/file/uwh21fj10woraub/%2523azr8_-_ar11hehe.osk/file)
 ![](https://imgur.com/bbpV1ST.png)
 
-# [#azr8BernieSanders](https://s.put.re/sAS6VypT.osk)
+# [#azr8BernieSanders](https://www.mediafire.com/file/tr3rol8vbrdr9zg/%2523azr8BernieSanders.osk/file)
 ![](https://i.imgur.com/sbUuXIJ.png)
 
-# [#Azerite (osu player84)](https://s.put.re/hWAnhcsh.osk)
+# [#Azerite (osu player84)](https://www.mediafire.com/file/fzcnxu99lllt6pn/%2523Azerite_%2528osu_player84%2529.osk/file)
 ![](https://i.imgur.com/TZYghX2.png)
 
 
