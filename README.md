@@ -55,22 +55,22 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azr8new but old (missing)](https://s.put.re/UpUkt74L.osk)
 ![](https://i.imgur.com/IzHCfPz.png)
 
-# [#azr8new - blue](https://s.put.re/yuT1ASfW.osk)
+# [#azr8new - blue](https://www.mediafire.com/file/tws8frmnnvd2irr/%2523azr8new_-_blue.osk/file)
 ![](https://i.imgur.com/5xs6yxJ.png)
 
-# [#azr8new](https://s.put.re/LQhAo5cu.osk)
+# [#azr8new](https://www.mediafire.com/file/bkdevobrt2o9tii/%2523azr8new.osk/file)
 ![](https://i.imgur.com/2lruFhR.png)
 
-# [#azer8midnight v1.5](https://s.put.re/MnAq3XJ1.5.osk)
+# [#azer8midnight v1.5](https://www.mediafire.com/file/4qfd6w5jsi95cvo/%2523azer8midnight_v1.5.osk/file)
 ![](https://i.imgur.com/0Lk18M7.png)
 
-# [- # owoTuna {1.4} 『azr8』#](http://download1779.mediafire.com/u5ho3uozhvug/98zl79c7xnu7h00/-++++++%23+owoTuna+%7B1.4%7D+%E3%80%8Eazr8%E3%80%8F+%23++++++-.osk) 
+# [- # owoTuna {1.4} 『azr8』#](https://www.mediafire.com/file/ayw1d6xbibjob8j/-_%2523_owoTuna_%257B1.4%257D_%25E3%2580%258Eazr8%25E3%2580%258F_%2523_-.osk/file) 
 ![](https://i.imgur.com/rBpFD92.png)
 
-# [#azer8midnight v1.4](https://s.put.re/3gaZecRD.4.osk)
+# [#azer8midnight v1.4](https://www.mediafire.com/file/f2bbfqk7td0f0nb/%2523azer8midnight_v1.4.osk/file)
 ![](https://i.imgur.com/JA41sXB.png)
 
-# [#azer8midnight v1](https://s.put.re/ohWvSW9h.osk)
+# [#azer8midnight v1](https://www.mediafire.com/file/ywd8vgnxv77rhgb/%2523azer8midnight_v1.osk/file)
 ![](https://i.imgur.com/TqZyRTk.png)
 
 # [#azer8sunset (animated scorebar) (missing)](https://s.put.re/RK4vRMb1.osk)
