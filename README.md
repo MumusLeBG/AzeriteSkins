@@ -85,8 +85,8 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [- MeguminAzerite -](https://www.mediafire.com/file/z68sszda7o8gq4x/-_MeguminAzerite__-.osk/file)
 ![](https://osu.ppy.sh/ss/14035146/f924)
 
-# [azer8new - Pink (missing)](https://s.put.re/MoKQb33D.osk)
-![](https://i.imgur.com/aNI0jp3.png)
+# [azer8new - Pink](https://www.mediafire.com/file/l0x0gg49811qx7m/azer8new_-_Pink.osk/file)
+![](https://imgur.com/jALVNWI.png)
 
 # [azer8new - Red and Blue](https://www.mediafire.com/file/lvnq4fhqpiwdbht/azer8new_-_Red_and_Blue.osk/file)
 ![](https://imgur.com/OepN87y.png)
