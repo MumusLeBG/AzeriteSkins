@@ -73,7 +73,7 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azer8midnight v1](https://www.mediafire.com/file/ywd8vgnxv77rhgb/%2523azer8midnight_v1.osk/file)
 ![](https://i.imgur.com/TqZyRTk.png)
 
-# [#azer8sunset (animated scorebar) (missing)](https://s.put.re/RK4vRMb1.osk)
+# [#azer8sunset (animated scorebar)](https://www.mediafire.com/file/m0652676zegbfp1/%2523azer8sunset.osk/file)
 ![](https://imgur.com/BhuEH78.png) 
 
 # [#azer8dusk (animated scorebar) (missing)](https://s.put.re/9mQy77cF.osk)
