@@ -106,7 +106,7 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azer8trail](https://www.mediafire.com/file/vjd49kiy50px4wd/%2523azer8trail.osk/file)
 ![](https://i.imgur.com/LR1CbT6.png)
 
-# [azer8trail (missing)](https://s.put.re/yCbirFka.osk)
+# [azer8trail](https://www.mediafire.com/file/a727p7k1ljraiuc/azer8trail.osk/file)
 ![](https://osu.ppy.sh/ss/14040304/1cee)
 
 # [azer8bubble](https://www.mediafire.com/file/xrife19lj1dksht/azer8bubble.osk/file)
