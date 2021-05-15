@@ -52,7 +52,7 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azer8idke 2](https://www.mediafire.com/file/ckz5qic1n6rsq4q/%2523azer8idke_2.osk/file)
 ![](https://i.imgur.com/OgZdp6P.png)
 
-# [#azr8new but old (missing)](https://s.put.re/UpUkt74L.osk)
+# [#azr8new but old](https://www.mediafire.com/file/i3z68fpevqvx4wj/%2523azr8new_but_old.osk/file)
 ![](https://i.imgur.com/IzHCfPz.png)
 
 # [#azr8new - blue](https://www.mediafire.com/file/tws8frmnnvd2irr/%2523azr8new_-_blue.osk/file)
