@@ -79,6 +79,9 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [#azer8dusk (animated scorebar)](https://www.mediafire.com/file/r9zu9sd8vddxct8/%2523azer8dusk.osk/file)
 ![](https://imgur.com/Y4IZ6hD.png)
 
+# [#azer8c](https://www.mediafire.com/file/o6bfqo8rv1aezrr/%2523azer8c.osk/file)
+![](https://imgur.com/mI2cmrP.png)
+
 # [#azer8dust](https://www.mediafire.com/file/2pnb9rhpbz26cqy/%2523azer8dust.osk/file)
 ![](https://i.imgur.com/CQZwrAl.png)
 
