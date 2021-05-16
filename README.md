@@ -3,7 +3,7 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 
 If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 
-14/04/2021 : It seems that some links are dead (because of put.re). If anyone has the missing skins, please contact me !
+16/05/2021 : Every skin has been restored, thanks to everybody who contributed !
 
 
 
