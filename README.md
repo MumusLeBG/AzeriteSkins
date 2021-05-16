@@ -142,8 +142,8 @@ If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 # [azer8hitsounds](https://www.mediafire.com/file/av1drex7y8hhfhs/azer8hitsounds.osk/file)
 ![](https://imgur.com/k28oDQu.png) 
 
-# [#Azerite v1.3 (missing)](https://s.put.re/qRFjqokq.3.osk)
-![](https://i.imgur.com/Vk9WSIy.png)
+# [#Azerite v1.3](https://www.mediafire.com/file/bys4yhzcot28r0q/%2523Azerite_v1.3.osk/file)
+![](https://imgur.com/gtgMbVM.png)
 
 # [#Azerite v1.2](https://www.mediafire.com/file/tqc13mfa7pbkj93/%2523Azerite_v1.2.osk/file)
 ![](https://i.imgur.com/ofIuHXw.png)
