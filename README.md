@@ -3,9 +3,10 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 
 If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 
-16/05/2021 : Every skin has been restored, thanks to everybody who contributed !
 
 
+# [azr8 - dt](https://www.mediafire.com/file/ujul57cgsnuvaco/azr8_-_dt.osk/file)
+![](https://imgur.com/Xl8elRx.png)
 
 # [azr8bubbleman - white](https://www.mediafire.com/file/vuk4uktrsfwllom/azr8bubbleman_-_white.osk/file)
 ![](https://imgur.com/3aqfb9c.png)
