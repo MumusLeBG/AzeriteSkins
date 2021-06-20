@@ -4,6 +4,8 @@ Azerite(azr8(osu player84)) osu skins, some of them are edited
 If you have any skin or if any link is dead, PM me on discord : M u m u s#6054
 
 
+# [azr8 - nomod](https://www.mediafire.com/file/zhjylhvmruqegp3/azr8_-_nomod.osk/file)
+![](https://imgur.com/TJbvByH.png)
 
 # [azr8 - dt](https://www.mediafire.com/file/ujul57cgsnuvaco/azr8_-_dt.osk/file)
 ![](https://imgur.com/Xl8elRx.png)
